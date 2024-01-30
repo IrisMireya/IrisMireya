@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IrisMireya
+- 👋 Hi, I’m @Iris
 - 👀 I’m interested in plants, surf, dogs, nature...
 - 🌱 I’m currently learning how to survive
 - 💞️ I’m looking to collaborate on building a new world order appart
